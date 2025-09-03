@@ -49,9 +49,7 @@ To improve future internship experiences, we recommend:
 
 ## Contact
 For any queries or further information, please contact:
-- **Elshaday Birhanu** - [email@example.com]
-- **Mehlet Feleke** - [email@example.com]
-- **Tsiyon Mekonen** - [email@example.com]
+- **Elshaday Birhanu** - [elshadaybirhanu5@gmail.com]
 
 ---
 
